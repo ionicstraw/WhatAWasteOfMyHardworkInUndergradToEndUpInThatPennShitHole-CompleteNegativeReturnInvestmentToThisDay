@@ -11,3 +11,5 @@ never ever ever ever will i ever be around an immigrant chinese man ever again, 
 if we hire programmers from other countries for n o m i a l, india, pakistan, bangaladesh, they have phenomenal training and background in CS/math, and they're nice people, its just that the time difference is like 12 hrs or something
 
 i dont want someone to work for me one day that thinks i have no skills and stares at me with a blank face like a spaced out motherfker, bc im an intelligent woman in STEM.
+
+"ohh they get their work done really fast" and sht like that ... thats NOT true first of all, and second at WHAT COST if they're driving out talented women bc they dont know how to professionally interact with them due to their own lack of education and personal failings. like no, never again.
