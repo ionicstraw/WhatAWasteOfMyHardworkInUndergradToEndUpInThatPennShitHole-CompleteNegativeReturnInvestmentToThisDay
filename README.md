@@ -13,3 +13,8 @@ if we hire programmers from other countries for n o m i a l, india, pakistan, ba
 i dont want someone to work for me one day that thinks i have no skills and stares at me with a blank face like a spaced out motherfker, bc im an intelligent woman in STEM.
 
 "ohh they get their work done really fast" and sht like that ... thats NOT true first of all, and second at WHAT COST if they're driving out talented women bc they dont know how to professionally interact with them due to their own lack of education and personal failings. like no, never again.
+
+all three of these countries, india, pakistan, bangaladesh, have voted democratically for women in the highest office and THAT changes the culture and general understanding that, that's actually ok
+
+china has not. never.
+
