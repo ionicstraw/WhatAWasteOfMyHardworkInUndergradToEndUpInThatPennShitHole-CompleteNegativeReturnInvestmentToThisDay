@@ -18,3 +18,4 @@ all three of these countries, india, pakistan, bangaladesh, have voted democrati
 
 china has not. never.
 
+i will not ever hire someone at n o m i a l that will drive out talented people, like ever, never ever
