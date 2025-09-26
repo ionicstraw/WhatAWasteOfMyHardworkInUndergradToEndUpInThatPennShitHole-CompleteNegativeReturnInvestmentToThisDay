@@ -8,4 +8,6 @@ never ever will i end up being a big fish in a very small pond around mediocre p
 
 never ever ever ever will i ever be around an immigrant chinese man ever again, they have consistently been the worst thing for my career, they consistently in my opinion, **DO NOT** have the cultural training, the humanities education, to treat intelligent women in STEM with respect and dignity and have an ackowledgement for their skills -- everything about an intelligent woman to them is a personal insult to them while at the same time, they get obsessed, its just weird. consistently a complete waste of my time. i have so many examples im not sharing right now.
 
-if we hire programmers from other countries for n o m i a l, india, pakistan, they have phenomenal training and background in CS/math, and they're nice people, its just that the time difference is like 12 hrs or something
+if we hire programmers from other countries for n o m i a l, india, pakistan, bangaladesh, they have phenomenal training and background in CS/math, and they're nice people, its just that the time difference is like 12 hrs or something
+
+i dont want someone to work for me one day that thinks i have no skills and stares at me with a blank face like a spaced out motherfker, bc im an intelligent woman in STEM.
